@@ -1,6 +1,6 @@
 ## 10 things to know about working with @howdyray 🤠 
 
-![Pigeon on red carpet](https://i.postimg.cc/Z5xQc4MV/6ihmcd.jpg "Who is she?")
+![Pigeon on red carpet saying who is she?](https://user-images.githubusercontent.com/3454298/171913619-57890257-3c7a-4b6e-9e2a-fd21ecd1cb29.jpg)
 
 1. **My professional mantra: perfection should never be the enemy of progress** (paraphrasing Winston Churchill). My view of success is constantly learning. We'll probably miss the mark sometimes, but we iterate and learn together.
 
