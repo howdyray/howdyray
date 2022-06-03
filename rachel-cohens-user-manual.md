@@ -6,7 +6,6 @@
 Everyone shows up differently at work. Use this manual as a "cheat code" to understand how I like to show up at work, how I operate, communicate, etc. I encourage you to write one for yourself and share it with me so we can get to know each other. 
 
 ***  
-<br>
 
 1. **My professional mantra: perfection should never be the enemy of progress** (paraphrasing Winston Churchill). My view of success is constantly learning. We'll probably miss the mark sometimes, but we iterate and learn together.
 
