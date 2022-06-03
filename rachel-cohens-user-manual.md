@@ -32,7 +32,7 @@ Everyone shows up differently at work. Use this manual as a "cheat code" to unde
 
 
 ## Bonus round 
-* 🧠 I lead with intuition and try to validate it with data.
+* 🧠 I tend to lead with intuition and validate with data.
 * 🗣️ I love hopping into Figjam to hash out ideas, collaborte, write notes, etc.
 * 🐕 My dog sometimes jumps on the back of my chair during meetings, her name is Ango.
 * 🍳 My favorite burner on the stove is the front right burner. 
