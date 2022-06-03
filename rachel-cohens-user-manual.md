@@ -1,6 +1,12 @@
 ## 10 things to know about working with @howdyray 🤠 
 
 ![Pigeon on red carpet saying who is she?](https://user-images.githubusercontent.com/3454298/171913619-57890257-3c7a-4b6e-9e2a-fd21ecd1cb29.jpg)
+<br>
+<br>
+Everyone shows up differently at work. Use this manual as a "cheat code" to understand how I like to show up at work, how I operate, communicate, etc. I encourage you to write one for yourself and share it with me so we can get to know each other. 
+
+***  
+<br>
 
 1. **My professional mantra: perfection should never be the enemy of progress** (paraphrasing Winston Churchill). My view of success is constantly learning. We'll probably miss the mark sometimes, but we iterate and learn together.
 
@@ -23,3 +29,10 @@
 
 
 10. **If we aren’t having fun then what is the point?** I love sharing memes, talking about trashy TV, hearing about people's hobbies, terrible photoshop jobs, etc. As we work we must find those moments of levity.
+
+
+## Bonus round 
+* 🧠 I lead with intuition and try to validate it with data.
+* 🗣️ I love hopping into Figjam to hash out ideas, collaborte, write notes, etc.
+* 🐕 My dog sometimes jumps on the back of my chair during meetings, her name is Ango.
+* 🍳 My favorite burner on the stove is the front right burner. 
